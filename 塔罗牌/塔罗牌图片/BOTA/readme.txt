@@ -1,0 +1,1 @@
+保罗·佛斯特·凯斯（Paul Foster Case）设计、洁西·柏恩斯·帕克（Jessie Burms Parke）绘制的「内殿建造者」（Builders of the Adytunm，简称 BOTA）
